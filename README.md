@@ -1,6 +1,6 @@
 they want to be just like me
 
-Connect with me:
+connect with me:
 
 [Youtube](https://www.youtube.com/channel/UCbY38-iERpfHYLOESjIr6Gw)
 
